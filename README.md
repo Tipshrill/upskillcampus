@@ -1,1 +1,1 @@
-coming soon
+Successfully created placeholder
